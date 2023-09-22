@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @anhndt-eway
+- 👀 I’m interested in animu
+- 🌱 I’m currently learning how to learn
+- 💞️ I’m looking to collaborate on my work
+- 📫 How to reach me: 0976518968
